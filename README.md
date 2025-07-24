@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LarryLunatic87
+- 👋 Hi, I’m Marco,
 - 👀 I’m interested in learning & exploring 
 - 🌱 I’m currently learning the basics
 
